@@ -1,7 +1,8 @@
 # Harry Dean Stanton
 
 ## Career
-Stanton appeared in indie and cult films (Cockfighter, Two-Lane Blacktop, Escape from New York, Repo Man), as well as many mainstream Hollywood productions, including Cool Hand Luke, The Godfather Part II, Alien, Red Dawn, Alpha Dog, Pretty in Pink, Stephen King's Christine, and The Green Mile. He was a favorite actor of the directors Sam Peckinpah, John Milius, David Lynch, and Monte Hellman, and was also close friends with Francis Ford Coppola and Jack Nicholson. He was best man at Nicholson's wedding in 1962.
+
+Stanton appeared in cult and indie films (Cockfighter, Two-Lane Blacktop, Escape from New York, Repo Man), as well as many mainstream Hollywood productions, including Cool Hand Luke, The Godfather Part II, Alien, Red Dawn, Alpha Dog, Pretty in Pink, Stephen King's Christine, and The Green Mile. He was a favorite actor of the directors Sam Peckinpah, John Milius, David Lynch, and Monte Hellman, and was also close friends with Francis Ford Coppola and Jack Nicholson. He was best man at Nicholson's wedding in 1962.
 
 He made his first television appearance in 1954 in Inner Sanctum. He played Stoneman in the Have Gun – Will Travel 1959 episode "Treasure Trail", credited under Dean Stanton. He made his film debut in 1957 in the Western Tomahawk Trail. He appeared (uncredited) as a complaining BAR man at the beginning of the 1959 film Pork Chop Hill starring Gregory Peck. Then in 1962 he had a very small part in How the West Was Won, portraying one of Charlie Gant's (Eli Wallach) gang. The following year he had a minor role as a poetry-reciting beatnik in The Man from the Diner's Club. Early in his career he took the name Dean Stanton to avoid confusion with the actor Harry Stanton.
 
